@@ -67,7 +67,7 @@
 
 如果您在使用程序时遇到任何问题或有任何建议或意见，请随时联系我们：
 
-- email: 1265782380@qq.com
+- email: UNAOJH@outlook.com
 - wechat: MR_808800
 
 ### 版权声明
